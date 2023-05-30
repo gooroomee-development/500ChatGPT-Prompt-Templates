@@ -1,0 +1,1 @@
+# 500ChatGPT-Prompt-Templates
